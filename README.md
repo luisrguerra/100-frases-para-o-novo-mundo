@@ -212,7 +212,7 @@ todos os homens.
 tem.
 100. O que falta de sanidade no mundo é o que é preciso ter.
 O que é loucura para o mundo.
-101.Se ser bom é ser um trouxa, serei trouxa com muito
+101. Se ser bom é ser um trouxa, serei trouxa com muito
 orgulho. Se o mundo é dos espertos, os espertos podem
 ficar com ele; estou interessado é no céu.
 
