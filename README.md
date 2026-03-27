@@ -153,7 +153,7 @@ coisa, vive por algo muito maior que ele próprio.
 pois não havia nada em troca.
 67. Fiz e aprendi muitas coisas inúteis, um dia encontrei
 utilidade para elas. Utilidades que muitos não enxergavam.
-68.Seja criativo e fuja do raso, assim tudo o que é ordinário
+68. Seja criativo e fuja do raso, assim tudo o que é ordinário
 se transformará em extraordinário.
 69. Tudo vale a pena quando a alma não é pequena.
 70. O que muitos dizem ser falta de tempo é na verdade falta
